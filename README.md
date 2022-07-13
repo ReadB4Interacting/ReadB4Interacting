@@ -22,7 +22,8 @@ INT
 ────────────────────────────────────────────────────────────────────────────────────
 
 I tend to stay afk in game, feel free to sit with whenever but I might not talk at all, dont take it personally ‹𝟹
-Please refrain from flirting with me as it makes me very uncomfortable, jokes are fine and tonetags aren't needed for those who are wondering.  
+Please refrain from flirting with me as it makes me very uncomfortable, jokes are fine and tonetags aren't needed for those who are wondering.
+DO NOT DO NOT take heavy inspiration of my ocs, I dont want recolored versions of my characters ^^ 
 
 ────────────────────────────────────────────────────────────────────────────────────
 
