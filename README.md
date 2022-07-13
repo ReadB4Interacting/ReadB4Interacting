@@ -6,7 +6,7 @@ DNI if
 
 » you don't have common sense and have little to no respect towards others.
 
-» you're under 16 , over 25
+» you're a child, mentally and psychically
 
 » you're a negative person 24/7
 
